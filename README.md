@@ -21,7 +21,7 @@ that I will do my best to learn as quickly as possible to obtain skills that are
 independent tasks. I am resilient to stress and can work hard. In my previous career as a
 manager i was responsible for building and managing different teams across international
 corporations (pls. check my CV for more reference). That`s why i am confident that i am a good
-team player and I am always acting in teams best interest
+team player and I am always acting in teams best interest.
 
 Thank You and Best Regards
 Mariusz Jachymczak
